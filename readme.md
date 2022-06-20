@@ -39,3 +39,4 @@ _контакты:_ _umasattory@gmail.com_
 _ссылка на мою страницу:_  [https://vk.com/umed_555]
 
 ![my foto](https://disk.yandex.ru/i/_YSGHP5Wf2PDOQ)
+
